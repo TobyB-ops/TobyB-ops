@@ -1,1 +1,1 @@
-This ais my Github profile, enjoy looking over my projects!
+This is my Github profile, enjoy looking over my projects!
